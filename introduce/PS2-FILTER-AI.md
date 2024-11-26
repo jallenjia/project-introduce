@@ -5,3 +5,4 @@ I think it's a fun little tool. You can turn yourself into a PS2 game character 
 Oh, one more thing, there's a small fee to use it because, well, running these AI models is expensive. But there's a free trial, so you can check it out first. And if you have any feedback, just shoot us an email at dreamspire.team@gmail.com.
 
 [more introduce](https://felo.ai/search/koWcALB9U73PXcaoyo6iuD)
+[more introduce](https://readweb.ai/zh/page/98a8bfc864d5b312fb9ed6e5f2db9e8c)

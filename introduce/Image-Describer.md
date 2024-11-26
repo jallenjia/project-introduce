@@ -6,3 +6,4 @@ Image Describer: A cutting-edge AI tool that unlocks the secrets of images, deli
 With [Image Describer](http://imagedescriber.online/), unlock new possibilities and streamline your workflow.
 
 [more introduce](https://felo.ai/search/aYQygGsV2URNMoK6c7AAXi)
+[more introduce](https://readweb.ai/zh/page/5046d15557fa572fb131b68223a6fe9c)

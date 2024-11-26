@@ -4,3 +4,4 @@ You know, it's pretty easy to use. You just upload an image and, um, you can eit
 It costs a little to use because running these AI models is expensive, but there is a free trial so you can try it out first. And, uh, if you have any suggestions or anything, you can always email us at dreamspire.team@gmail.com.
 
 [more introduce](https://felo.ai/search/2m8M7gmguJXYA4hbixjFUD)
+[more introduce](https://readweb.ai/zh/page/17278ac8261d05264a5f38a075fad734)
